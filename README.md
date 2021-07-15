@@ -20,3 +20,6 @@ https://www.artstation.com/artwork/0XkWb4
 
 https://www.artstation.com/artwork/wmV6
 ![](https://cdna.artstation.com/p/assets/images/images/000/049/358/large/Monolith_1.jpg?1398934122)
+
+https://www.artstation.com/artwork/6aQEwr
+![](https://cdna.artstation.com/p/assets/images/images/019/579/048/large/taehoon-kang-16.jpg?1564108795)

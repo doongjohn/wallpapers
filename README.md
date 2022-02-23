@@ -1,4 +1,4 @@
-# Note: Wallpaper
+# Wallpaper collection
 
 <https://www.artstation.com/artwork/3o8DmE>\
 ![](https://cdna.artstation.com/p/assets/images/images/018/134/620/large/louis-durrant-kde-1080.jpg?1558453115)
